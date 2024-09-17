@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DeruZogratis
+- 👀 I’m interested in cybersecurity
+- 🌱 I’m currently learning programming languages
+- 😄 Pronouns: He/him or im Him
